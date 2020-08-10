@@ -1,1 +1,1 @@
-because the topics in this character are too much,i skipped the topics 7.7 ~綜合練習。
+because the topics in this chapter are too much,i skipped the topics 7.7 ~綜合練習。
